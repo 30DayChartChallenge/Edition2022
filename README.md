@@ -1,0 +1,2 @@
+# 30DayChartChallenge_Edition2022
+Information on 30DayChartChallenge Edition 2022
